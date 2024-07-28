@@ -1,1 +1,1 @@
-# CozyLegendsIslands
+# Cozy Legends Islands
